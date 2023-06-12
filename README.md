@@ -1,1 +1,1 @@
-![Screenshot from 2023-06-12 23-33-08](https://github.com/anupomm/ostad-livetest-module6/assets/95094496/3e0f222e-15ac-4e40-a878-c4bc27f1d3cc)
+![Screenshot_1686599655](https://github.com/anupomm/ostad-livetest-module6/assets/95094496/5081df80-23a2-488b-acd8-4c94aade0155)
